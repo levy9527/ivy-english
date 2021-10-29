@@ -16,5 +16,5 @@ He is a student. (I am also a student == I am, too) also 在 be 动词后面。
 We live
 - in the same house
 - in the same building
-- one the same street
+- on the same street
 - in the same city
