@@ -6,6 +6,7 @@ Tony and Tina are brother and sister. But are they alike? No, They aren't. They'
 
 ## Vocabulary
 athlete. n. 运动员。
+
 alike. adj. 相似的。Jonh and Peter are alike in many ways.
 
 ## Grammar Points
