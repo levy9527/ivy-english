@@ -4,7 +4,7 @@ Judy is worried. She has nothing suitable to wear, so she puts on her best casua
 ## Key Points
 Guess What? 你猜怎么样？
 
-something/anything/nothing 虽然是代词，但却在形容词的前面：
+something/anything/nothing 虽然是代词(没有复数形式），但却在形容词的前面：
 - I have sth. important to tell you.
 - I have nothing important to tell you.
 
