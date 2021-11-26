@@ -33,6 +33,10 @@ someday，用于将来
 
 the other day: 几天前，用于过去
 
+in the end == at last
+
+in the beginning == at first
+
 
 
 
