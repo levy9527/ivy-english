@@ -19,6 +19,8 @@ resist. 抗拒
 light up. 点火（点燃香烟）
 
 it's no use doing sth. 干...是没有用的
+- It's no use learning without thinking
+- It's no use crying over spilt milk
 
 pay a heavy price 付出了很大的代价
 
