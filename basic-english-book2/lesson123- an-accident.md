@@ -26,7 +26,7 @@ honk the horn. 按喇叭
 - If I want the person in front of me to drive faster, I will honk the horn
 - I think that's very rude!
 
-现在完成进行时，与现在完成时的区别在于，如果动作一直持续，则最好用现在完成进行时：
+当与一段时间一起搭配时，现在完成进行时，与现在完成时的区别在于，如果动作一直持续，则最好用现在完成进行时：
 - I've been learning English for five years。学英文五年了（现在还在学）
 
 You're a sloppy man. 邋遢的
