@@ -13,6 +13,8 @@ postpone doing 拖延，延期
 make an excuse 找借口，找理由
 stop making excuses。别找借口了
 
+worry. vi & vt. 所以可以直接说 we will worry 或 don't worry
+
 leave sb./sth. + 形容词/动名词/过去分词（表状态）：任由某事怎样
 - leave sth. undone 留下某事未完成
 - The flood left many people homeless
