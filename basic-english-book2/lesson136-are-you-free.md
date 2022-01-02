@@ -17,3 +17,8 @@ See you then.
 - are you free
 - are you available
 - do you have time now?
+
+pick up:
+- 接某人 James pick his wife up from work every weekday
+- 捡起来
+- 非正式地学语言：Rita picked up some Chinese on her last trip to Beijing
