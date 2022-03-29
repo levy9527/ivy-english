@@ -12,7 +12,7 @@ Being late may cause a bad result. Here're examples:
 2. In social dates, you may rejected by others to get along with them
 3. In school class, you may give a bad impression on your teacher and your classmates
 
-What should we do if being late cannot avoided? 
+What should we do if being late cannot be avoided? 
 Here're some pieces of advice:
 1. tell people in advance, explaning why you're or will be late
 2. apologize
