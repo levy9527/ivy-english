@@ -8,7 +8,7 @@ Being on time shows good manners. Being late, wasting others' time, is a sign of
 Worse, it maybe an insult to others, as if to say, "your time is not that important". This attitue borders on sin!
 
 Being late may cause a bad result. Here're examples:
-1. In business, you may lost your chance to promotion
+1. In business, you may lost your chance to getting promotion
 2. In social dates, you may rejected by others to get along with them
 3. In school class, you may give a bad impression on your teacher and your classmates
 
