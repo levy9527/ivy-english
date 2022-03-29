@@ -4,7 +4,7 @@ For German- or English-speaking people, time maybe the utmost important thing.
 
 The reason why they care about time maybe that there's an observatory at Greenwich, in London. GMT starts from there.
 
-Being on time shows good manners. Being late, wasting others time, is a sign of disorganizing living, an admission of being low-class. 
+Being on time shows good manners. Being late, wasting others' time, is a sign of disorganizing living, an admission of being low-class. 
 Worse, it maybe an insult to others, as if to say, "your time is not that important". This attitue borders on sin!
 
 Being late may cause a bad result. Here're examples:
