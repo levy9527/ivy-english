@@ -16,7 +16,7 @@ These chemicals can be released in to air and breathed in. Once inside our bodie
 
 What's more, home activities, such as burning、cooking and even candles will release carbon monoxide. 
 
-In addition, new furniture、new clothing、new equipment and new applied paint, which give off "new smell", is a sign of harmful chemicals.
+In addition, new furniture、new clothing、new equipment and new applied paint, which give off "new smell", are releasing harmful chemicals.
 
 To pretect our health, we should open windows during good weather to flush stale air. In this point, the air conditioner maybe our enemy, not our friend.
 
