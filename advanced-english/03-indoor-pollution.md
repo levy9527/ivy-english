@@ -20,4 +20,4 @@ In addition, new furniture、new clothing、new equipment and new applied paint,
 
 To pretect our health, we should open windows during good weather to flush stale air. In this point, the air conditioner maybe our enemy, not our friend.
 
-In summary, we're neither safe at home nor in the office. We further research to understand our new technological environment better.
+In summary, we're neither safe at home nor in the office. We need further research to understand our new technological environment better.
